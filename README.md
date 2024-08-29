@@ -1,0 +1,1 @@
+# treinamento-de-gerencia---adapti
